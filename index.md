@@ -8,7 +8,7 @@ and worked in this strange system called capitalism for 16 years.
 Now I decided to break out and see the world, the real life…
 I bought a "new" camper to travel around and see the world.
 
-##Stichpunkte
+## Stichpunkte
 
 * Reisen
 * Spielkind
