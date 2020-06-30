@@ -10,9 +10,9 @@ I bought a "new" camper to travel around and see the world.
 
 ## Stichpunktliste
 
-liebt das Reisen
-ist Spielkind
-neugierig auf Neues
-technik Nerd
-android user
+Reisen
+Spielkind
+Neues
+Nerd
+user
 
