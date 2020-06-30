@@ -10,9 +10,7 @@ I bought a "new" camper to travel around and see the world.
 
 ## Stichpunktliste
 
-* Reisen
-* Spielkind
- * Neues
- * Nerd
- * user
 
+
+Peed said:
+> I’ve always been more interested> in the future than in the past
