@@ -10,9 +10,9 @@ I bought a "new" camper to travel around and see the world.
 
 ## Stichpunktliste
 
-Reisen
-Spielkind
-Neues
-Nerd
-user
+-Reisen
+-Spielkind
+-Neues
+-Nerd
+-user
 
