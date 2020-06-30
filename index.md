@@ -8,4 +8,11 @@ and worked in this strange system called capitalism for 16 years.
 Now I decided to break out and see the world, the real life…
 I bought a "new" camper to travel around and see the world.
 
-## liebt das Reisen, ist neugierig auf neues, ist ein Spielkind
+## Stichpunktliste
+
+liebt das Reisen
+ist Spielkind
+neugierig auf Neues
+technik Nerd
+android user
+
