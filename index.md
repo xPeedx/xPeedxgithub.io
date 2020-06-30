@@ -8,13 +8,14 @@ and worked in this strange system called capitalism for 16 years.
 Now I decided to break out and see the world, the real life…
 I bought a "new" camper to travel around and see the world.
 
-## Stichpunktliste
+## Stichpunkte
 
-*Reisen
-*Spielkind
- *Neues
- *Nerd
- *user
+* Reisen
+* Spielkind
+ * Neues
+ * Nerd
+ * user
+
 
 Peed said:
 > I’ve always been more interested> in the future than in the past
